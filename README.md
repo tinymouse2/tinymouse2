@@ -21,4 +21,7 @@ $${\color{#B52D2D} it \space ﾉ \space they \space ﾉ \space any}$$
   
 $${\color{#B52D2D} more \space in \space my \space other \space links \space .ᐟ \space ( \space coming \space soon \space )}$$
 
+<p align="center">
+<img src="https://64.media.tumblr.com/457553110efa807aadb0f4d8c3d7dff9/e37713968bf4c620-64/s500x750/0fdfad4b162782c24a05ef7acb3897c4296b6a54.pnj" width="600">
+
 this readme was made by [evilpuppy300](https://github.com/evilpuppy300) ^_^ ! !
