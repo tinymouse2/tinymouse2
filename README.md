@@ -1,5 +1,5 @@
 $${\color{#7b9be3} ゛ \space i'm \space not \space the \space girl \space i \space ought \space to \space be \space - }$$
-$${\color{#7b9be3} - \space and \space maybe \space when \space you \space tell \space your \space friends \space \space . \space . \space ゛ }$$
+$${\color{#7b9be3} - \space but \space maybe \space when \space you \space tell \space your \space friends \space \space . \space . \space ゛ }$$
 <p align="center">
 <img src="https://files.catbox.moe/dhgxpj.webp" width="250">
 <p align="center">
