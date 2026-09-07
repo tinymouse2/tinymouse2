@@ -27,7 +27,7 @@ $${\color{#b05ad4} ᛝ \space mentally \space unwell \space , \space please \spa
 <p align="center">
   <img src="https://64.media.tumblr.com/796fa091d26f2d0f89975d15719e98c2/cbc9a6c150d7fe71-d6/s75x75_c1/c17f2cc835a8cf5e41796296c9f859a225c33b7f.gifv" width="40">
   
-$${\color{#4571d8} im \space an \space anxious \space person \space most \space of \space the \space time \space , \space usually \space wont \space int \space first \space ! }$$
+$${\color{#5a72d1} im \space an \space anxious \space person \space most \space of \space the \space time \space , \space usually \space wont \space int \space first \space ! }$$
 
 <p align="center">
 <img src="https://64.media.tumblr.com/5c84866c3c92eacfca27424a91011ba0/cff67a1f695ab402-50/s250x400/45f682c20062f08246bc385cb6c59e4b03c7ecab.gifv" width="400">
